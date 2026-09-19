@@ -1,2 +1,0 @@
-# Lgng
-LOS PRIMOS
